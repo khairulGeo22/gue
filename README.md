@@ -1,0 +1,2 @@
+# gue
+gue baru belajar
